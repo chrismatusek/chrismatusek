@@ -11,4 +11,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about my dog, Noodle.
 - 📫 How to reach me: Not quite ready to share this information yet.
 - 😄 Pronouns: They/Them
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: A dog saved my life.
